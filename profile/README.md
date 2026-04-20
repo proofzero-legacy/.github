@@ -1,2 +1,2 @@
 # 🄿🅁🄾🄱🄰🅃🄸🄾 🄽🅄🄻🄻🄰 🅁🄴🅀🅄🄸🄴🅃
-<p align="center">『☧』</p>
+<p align="right">『☧』</p>
